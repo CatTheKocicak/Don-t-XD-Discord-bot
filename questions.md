@@ -1,4 +1,4 @@
-Do you have any questions? DM me at Discord
+Do you have any questions? Write me and email
 
 
-MiSTR Thomas#1234
+Thomas@kocicak.eu
